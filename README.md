@@ -1,1 +1,1 @@
-güncelleme mevcut
+sürümünüz güncel
