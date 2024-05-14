@@ -1,1 +1,1 @@
-Güncel Sürüm 2
+Güncel Sürüm kullanıyorsunuz
