@@ -1,1 +1,1 @@
-# bilgi
+güncelleme mevcut
