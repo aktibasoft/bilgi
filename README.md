@@ -1,1 +1,1 @@
-Güncel Sürüm kullanıyorsunuz
+Güncel sürüm mevcut
